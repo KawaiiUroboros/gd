@@ -1,0 +1,2 @@
+# gd
+kuritsa ryaba
